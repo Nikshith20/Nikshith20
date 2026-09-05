@@ -1,5 +1,5 @@
 # 💫 About Me:
-BCA Student
+I'm currently learning BCA Student
 
 
 ## 🌐 Socials:
